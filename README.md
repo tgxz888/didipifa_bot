@@ -1,9 +1,9 @@
-# didipifa_bot
+<img width="797" height="1280" alt="image" src="https://github.com/user-attachments/assets/decba9c9-da78-4c48-bfef-2e280e54a2e9" /># didipifa_bot
 电报直登号购买、telegram协议号、TG直登号购买、电报账号购买、TG防封号购买、TG账号4元一个、tdata+session号铺账号购买
 
 点击链接进入购买https://t.me/didihaopu_bot
 
-![Uploading image.png…]()
+https://github.com/user-attachments/assets/306d52b4-2c48-4988-8f5a-199190f4c250
 
 
 💎本店业务💎
