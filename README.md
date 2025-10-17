@@ -1,11 +1,11 @@
 
-##电报直登号购买、telegram协议号、TG直登号购买、电报账号购买、TG防封号购买、TG账号4元一个、tdata+session号铺账号购买
+## 电报直登号购买、telegram协议号、TG直登号购买、电报账号购买、TG防封号购买、TG账号4元一个、tdata+session号铺账号购买
 
-#点击链接进入购买https://t.me/didihaopu_bot
+# 点击链接进入购买https://t.me/didihaopu_bot
 
 <img width="400" height="600" alt="image" src="https://github.com/user-attachments/assets/decba9c9-da78-4c48-bfef-2e280e54a2e9" />
 
-##💎本店业务💎
+## 💎本店业务💎
 
 飞机号，协议号,  直登号(tdata) 批发/零售 !
 _____________________________________
